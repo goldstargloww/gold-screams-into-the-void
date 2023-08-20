@@ -1,3 +1,13 @@
+> [!WARNING]
+> - spoilers
+>   - 3rd life
+>   - last life
+>   - double life
+>   - limited life
+>  - death
+>  - self blame
+>  - feeling neglected
+
 # chirping
 
 - 3rd life
