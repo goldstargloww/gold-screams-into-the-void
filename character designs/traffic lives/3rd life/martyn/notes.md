@@ -4,7 +4,7 @@
 
 pre red winter it's pretty much just his default. hasn't changed much visually since evo. his hair is at its shortest here as well
 
-![[green pre red winter.png]]
+![ref for green pre red winter martyn](character designs/traffic lives/3rd life/martyn/green pre red winter.png)
 
 ## red winter
 
@@ -18,7 +18,7 @@ there's also something about him that just feels.. broken. ever since red winter
 
 i like cherri's idea of, like, the shadow eating away at martyn physically. i think i wanna include that
 
-![[green red winter.png]]
+![ref for green red winter martyn](character designs/traffic lives/3rd life/martyn/green red winter.png)
 
 # yellow + red
 
