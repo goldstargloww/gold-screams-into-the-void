@@ -18,7 +18,7 @@ there's also something about him that just feels.. broken. ever since red winter
 
 i like cherri's idea of, like, the shadow eating away at martyn physically. i think i wanna include that
 
-![ref for green red winter martyn](character designs/traffic lives/3rd life/martyn/green red winter.png)
+![](https://github.com/goldstargloww/gold-screams-into-the-void/blob/main/character%20designs/traffic%20lives/3rd%20life/martyn/green%20red%20winter.png?raw=true)
 
 # yellow + red
 
