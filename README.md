@@ -1,1 +1,83 @@
 # gold-screams-into-the-void
+
+things i wanna think about
+- joel and abandonment issues and touch/affection starvation and loneliness and self blame and self hatred
+- evo crew and self destructive tendencies and lack of self preservation (especially grian and pearl)
+- scott and jimmy's relationship throughout traffic lives and how it changes and how they both feel about everything
+- consistently top placing players and how they get there
+- consistently low placing players and how they get there
+- completely accidental foreshadowing (ie. martyn mentioning canaries in coal mines in 3l 1, joel's "always watching" comment abt bigb in ll, maybe even cc!jimmy running hunger games sims that successfully predicted the winner 2/4 times)
+- scar and abandonment issues and loneliness and what he does to try to cope
+- pearl and abandonment issues and loneliness and self destructive tendencies (while still being top placing, interestingly)
+- scott and abandonment issues and loneliness and what insight his other characters (notably origins) can give
+- scott and anxiety
+- scar and paranoia
+- grian and paranoia
+- martyn and paranoia
+- joel and pearl and how isolation affected them
+- martyn and guilt (red winter is coming, failing the shadow, bad maths, killing scott in lml, etc)
+- martyn and failure
+- scott and being boogey
+- skizz and bloodlust
+- martyn and bloodlust
+- scar and bloodlust
+- jimmy and pessimism and nihilism and suicidality
+- jimmy going from flower husbands to southlands to ranchers to bad boys, what was healthy and what wasn't, what jimmy may have realized retrospectively was particularly unhealthy
+- martyn and loyalty and trust and honesty
+- desert duo and how grian pushes scar away yet scar always finds a way back, how grian cares and tries hard not to and how scar is scared of losing grian and tries hard not to show it
+- scar and last life
+- scar and his crystals in last life
+- scar and grief
+- mumbo and trust and betrayal
+- scott and self sacrifice
+- scott and survival
+- grian and scott and martyn and being targeted
+- greens and their reds (3l grian and scar, 3l martyn and ren, 3l scott and jimmy)
+- skizz and selflessness and kindness
+- ties and how, despite the name, they died separately
+- martyn and protection (for ren, for scott)
+- jimmy and bloodlust, or lack thereof
+- martyn and how the rest of the server treats him
+- jimmy and how the rest of the server treats him
+- scott and how the rest of the server treats him
+- skizs and devotion
+- martyn and devotion
+- grian and devotion
+- martyn and staying still, or lack thereof
+- scar and recklessness
+- joel and caring (olin tawa jan. how joel feels about it, his relationship with it)
+- martyn and paranoia, specifically in the "constantly being observed" sence, and lack of that "constantly being observed" feeling in double life
+- joel and weakness
+- martyn and weakness
+- grian and control
+- scott and how he feels about pearl in double life
+- pearl and tilly, both during and after double life
+- jimmy and being teased and messed with—how it affects him (assuming it's something he more encourages like he does irl. i'm thinking more the bad boys ladder incident)
+- joel and etho and moving on
+- jimmy and moving on from scott and tango. scott and tango still holding on ("say love you back" for scott. "i hesitated for some reason" for tango)
+- team ties and how tightly knit they are
+- scar and ignorance and obliviousness
+- players who kill the most and why and what that says
+- players who kill the least and why and what that says
+- players who die the most and why and what that says
+- players who die the least and why and what that says
+- grian and being boogey
+- grian and control
+- mean gills and their teamwork
+- team rancher and their small achievements, how they were constantly targeted and still had a good time despite all the bad luck and bad things that happened to them
+- martyn and his relationship with cleo in dl
+- martyn and his relationship with the southlands
+- martyn and scott pre limited life
+- differences in video titles/descs between members
+- how it went from 3rd life and blissful ignorance of what's to come and unhealthy relationships, to limited life and knowing roughly what to expect and that it's bad and relatively healthier relationships
+- grian and the bad boys
+- pearl and scar and hurting their soulmates
+- martyn and not looking for his soulmate and refusing to apologise for it because he doesn't think what he did was wrong
+- limited life and time
+- skizz and luck
+- morality and objectivity
+- joel and fear
+- joel and lizzie
+- martyn and [asc](<https://en.m.wikipedia.org/wiki/Altered_state_of_consciousness>)s
+- pearl and [asc](<https://en.m.wikipedia.org/wiki/Altered_state_of_consciousness>)s
+- joel and [asc](<https://en.m.wikipedia.org/wiki/Altered_state_of_consciousness>)s
