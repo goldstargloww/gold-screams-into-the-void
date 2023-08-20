@@ -4,7 +4,7 @@
 
 pre red winter it's pretty much just his default. hasn't changed much visually since evo. his hair is at its shortest here as well
 
-![ref for green pre red winter martyn](character designs/traffic lives/3rd life/martyn/green pre red winter.png)
+![](https://github.com/goldstargloww/gold-screams-into-the-void/blob/main/character%20designs/traffic%20lives/3rd%20life/martyn/green%20pre%20red%20winter.png?raw=true)
 
 ## red winter
 
