@@ -12,4 +12,4 @@ he also has a poppy that he keeps in his hair :>
 
 when he turns red his skin goes grayscale and that's about it. other than that his eye color is his life color
 
-the birds don't chirp as much after he dies. scott is the only one who notices.
+[the birds don't chirp as much after he dies. scott is the only one who notices.](https://github.com/goldstargloww/gold-screams-into-the-void/blob/main/ideas/traffic%20lives/chirping.md)
