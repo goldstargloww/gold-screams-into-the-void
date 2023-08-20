@@ -36,4 +36,4 @@ shadow eating is at its worst here. it's not *really* bad, it's definitely not o
 
 # notes
 
-each failure he has in regards to the shadow (||failing to boogey grian||, for example) makes the shadow eating 'jump ahead' a bit in progress
+each failure he has in regards to the shadow (failing to boogey grian, for example) makes the shadow eating 'jump ahead' a bit in progress
