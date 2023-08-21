@@ -1,0 +1,33 @@
+# by season
+- [3rd life](https://github.com/goldstargloww/gold-screams-into-the-void/tree/main/character%20designs/traffic%20lives/3rd%20life)
+    - [jimmy](https://github.com/goldstargloww/gold-screams-into-the-void/blob/main/character%20designs/traffic%20lives/3rd%20life/jimmy/notes.md)
+    - [martyn](https://github.com/goldstargloww/gold-screams-into-the-void/blob/main/character%20designs/traffic%20lives/3rd%20life/martyn/notes.md)
+    - [scott](https://github.com/goldstargloww/gold-screams-into-the-void/blob/main/character%20designs/traffic%20lives/3rd%20life/scott/notes.md)
+- [last life](https://github.com/goldstargloww/gold-screams-into-the-void/tree/main/character%20designs/traffic%20lives/last%20%20life)
+    - [jimmy](https://github.com/goldstargloww/gold-screams-into-the-void/tree/main/character%20designs/traffic%20lives/last%20%20life/jimmy/notes.md)
+    - [martyn](https://github.com/goldstargloww/gold-screams-into-the-void/tree/main/character%20designs/traffic%20lives/last%20%20life/martyn/notes.md)
+    - [scott](https://github.com/goldstargloww/gold-screams-into-the-void/tree/main/character%20designs/traffic%20lives/last%20%20life/scott/notes.md)
+- [double life](https://github.com/goldstargloww/gold-screams-into-the-void/tree/main/character%20designs/traffic%20lives/double%20life)
+    - [jimmy](https://github.com/goldstargloww/gold-screams-into-the-void/tree/main/character%20designs/traffic%20lives/double%20%20life/jimmy/notes.md)
+    - [martyn](https://github.com/goldstargloww/gold-screams-into-the-void/tree/main/character%20designs/traffic%20lives/double%20%20life/martyn/notes.md)
+    - [scott](https://github.com/goldstargloww/gold-screams-into-the-void/tree/main/character%20designs/traffic%20lives/double%20%20life/scott/notes.md)
+- [limited life](https://github.com/goldstargloww/gold-screams-into-the-void/tree/main/character%20designs/traffic%20lives/limited%20life)
+    - [jimmy](https://github.com/goldstargloww/gold-screams-into-the-void/tree/main/character%20designs/traffic%20lives/limited%20%20life/jimmy/notes.md)
+    - [martyn](https://github.com/goldstargloww/gold-screams-into-the-void/tree/main/character%20designs/traffic%20lives/limited%20%20life/martyn/notes.md)
+    - [scott](https://github.com/goldstargloww/gold-screams-into-the-void/tree/main/character%20designs/traffic%20lives/limited%20%20life/scott/notes.md)
+# by character
+- jimmy
+  - [3rd life](https://github.com/goldstargloww/gold-screams-into-the-void/blob/main/character%20designs/traffic%20lives/3rd%20life/jimmy/notes.md)
+  - [last life](https://github.com/goldstargloww/gold-screams-into-the-void/tree/main/character%20designs/traffic%20lives/last%20%20life/jimmy/notes.md)
+  - [double life](https://github.com/goldstargloww/gold-screams-into-the-void/tree/main/character%20designs/traffic%20lives/double%20%20life/jimmy/notes.md)
+  - [limited life](https://github.com/goldstargloww/gold-screams-into-the-void/tree/main/character%20designs/traffic%20lives/limited%20%20life/jimmy/notes.md)
+- martyn
+  - [3rd life](https://github.com/goldstargloww/gold-screams-into-the-void/blob/main/character%20designs/traffic%20lives/3rd%20life/martyn/notes.md)
+  - [last life](https://github.com/goldstargloww/gold-screams-into-the-void/tree/main/character%20designs/traffic%20lives/last%20%20life/martyn/notes.md)
+  - [double life](https://github.com/goldstargloww/gold-screams-into-the-void/tree/main/character%20designs/traffic%20lives/double%20%20life/martyn/notes.md)
+  - [limited life](https://github.com/goldstargloww/gold-screams-into-the-void/tree/main/character%20designs/traffic%20lives/limited%20%20life/martyn/notes.md)
+- scott
+  - [3rd life](https://github.com/goldstargloww/gold-screams-into-the-void/blob/main/character%20designs/traffic%20lives/3rd%20life/scott/notes.md)
+  - [last life](https://github.com/goldstargloww/gold-screams-into-the-void/tree/main/character%20designs/traffic%20lives/last%20%20life/scott/notes.md)
+  - [double life](https://github.com/goldstargloww/gold-screams-into-the-void/tree/main/character%20designs/traffic%20lives/double%20%20life/scott/notes.md)
+  - [limited life](https://github.com/goldstargloww/gold-screams-into-the-void/tree/main/character%20designs/traffic%20lives/limited%20%20life/scott/notes.md)
