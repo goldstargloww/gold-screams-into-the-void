@@ -81,3 +81,4 @@ things i wanna think about
 - martyn and [asc](<https://en.m.wikipedia.org/wiki/Altered_state_of_consciousness>)s
 - pearl and [asc](<https://en.m.wikipedia.org/wiki/Altered_state_of_consciousness>)s
 - joel and [asc](<https://en.m.wikipedia.org/wiki/Altered_state_of_consciousness>)s
+- last life and paranoia
